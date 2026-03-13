@@ -1,4 +1,4 @@
-# Diego-Illobre
+# Diego Illobre
 
 # Hi! I'm Diego 👋
 
